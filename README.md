@@ -1,0 +1,2 @@
+# frigy
+politicas de privacidad
